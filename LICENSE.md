@@ -1,4 +1,4 @@
-# 
+# Professional dexscreener sniper bot presets for Mac OS | Native dexscreener sniper bot presets for PC Windows. Featuring private key management and portfolio management — optimized for maximum performance on every platform.
 
 
 
